@@ -15,6 +15,3 @@
 - 📫 Curseforge Profile:   curseforge.com/members/renalya/
 - 📫 Kinetic Hosting:      billing.kinetichosting.net/aff.php?aff=674
 - 📫 Arcane Studios:       discord.gg/arcanestudios
-
-[15%] Off Server Discount: (https://github.com/XLeftUnScarredX/XLeftUnScarredX/assets/153058383/b17a2b98-1968-4293-b4ba-d36bb8a27857)
-[15&] Off Server Banner:   (https://github.com/XLeftUnScarredX/XLeftUnScarredX/assets/153058383/7cfdb34e-c2fe-4551-80b1-7618e9c04890)
